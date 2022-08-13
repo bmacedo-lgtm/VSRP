@@ -1,4 +1,4 @@
-# Virtual summer research program for future physician-scientists: supporting underrepresented minorities during the COVID-19 pandemic
+# Virtual summer research program: supporting future physician-scientists from underrepresented backgrounds
 
 MD/DO-PhD programs expect applicants to have extensive research experience; thus, those with reduced access to research opportunities may experience barriers to matriculating into these programs and then entering the physician-scientist workforce. The COVID-19 pandemic disrupted summer research programs across the United States.  
 
